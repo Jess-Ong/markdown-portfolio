@@ -1,0 +1,3 @@
+* HIIT
+* Yoga
+* Meditation
